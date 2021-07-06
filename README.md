@@ -1,7 +1,7 @@
 ![kamala_github 2](https://user-images.githubusercontent.com/69096063/124637161-3a287280-de3e-11eb-91b4-e9f69568c3e0.jpeg)
 
 
-## Intro 
+## About Me 
 
 Hi there, I'm Anne! 👋  
 
